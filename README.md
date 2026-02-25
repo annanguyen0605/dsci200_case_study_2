@@ -1,0 +1,2 @@
+# dsci200_case_study_2
+DSCI 200 CASE STUDY 2 - ANNA NGUYEN
